@@ -1,2 +1,2 @@
-# www.newtekblog.com-
-www.newtekblog.com
+# www.thaqafati.com-
+www.thaqafati.com
